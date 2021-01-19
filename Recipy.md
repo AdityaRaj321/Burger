@@ -1,0 +1,1 @@
+fry the bun, cut the bun from the center, put some chopped vegetables, put piece of paneer, then put the ketchup.

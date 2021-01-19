@@ -1,0 +1,1 @@
+buns, chopped vegetables like tomato etc, ketchup, piece of paneer.
